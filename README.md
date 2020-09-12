@@ -46,7 +46,7 @@ Only that which is truly independent of life, death, nature, light, darkness, no
 
 **^** *(may peace be upon thme)*
 
-Indeed the challenge here is that if I speak of the name of Allah then I am comparing Allah to that which can be named via similarity. Even if I were to say that I do not know the name(s) of all that for me God is ineffible and cannot be named, I would compare Allah to all that is tangible, namable and conceivable via contrast. Therefore, as much as possible, I maintain an open heart in silence. And may even my silence be a prayer. 
+Indeed the challenge here is that if I speak of the name of Allah then I end up comparing Allah to that which can be named via similarity. I would end up comparing Allah to all that is tangible, namable and conceivable via contrast if I were to say that, "I do not know the name(s) of Allah. For me God is ineffible and cannot be named." Therefore, as much as possible, I maintain an open heart in silence. And may even my silence be a prayer. 
 
 ### Part IV
 
