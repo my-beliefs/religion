@@ -20,9 +20,9 @@ Regarding the topics of soul, death and organized religions:
 
 > I feel that at this stage in human evolution almost every religious organization is embroiled in some form of bad-faith politics. For my personal life I have not needed a religious master or guide because I strongly feel that nature itself is the teacher of all teachers for every creature. And for me Islam is identical to the laws of nature - it is the very essence of cosmic nature embedded in each part of the universe. This is a perspective I have cultivated from my travels and research into the various scriptures and cultures I have had access to. 
 
-I stick to the statement that "uttering anything whatsoever about what God is or isn't, is potentially blasphemous." To guard against such blasphemy I meditate on the topic of: 
+I stick to the statement that, "it is potentially blasphemous to utter anything what-so-ever about what God is or isn't." To guard against such blasphemy I meditate on the topic of: 
 
-**that which is not comparable to any, neither via similarity nor contrast.**
+***that which is not comparable to any, neither via similarity nor contrast.***
 
 This form of meditation logically confirms to me the boundaries of my contemplation. However, it also confirms to me and confers upon me the logical apophatic understanding that *Jesus is not God* and that Christ is an event, not a person or persona by any sense of the word person or persona. 
 
@@ -42,9 +42,9 @@ My personal philosophies, presented here, have been fashioned and honed by my le
 
 I do not have a lord of any sorts that has any hint of mortality. Not even those cursed with immortality can be my master. Furthermore, in being mortal, I am not my master. 
 
-Only that which is truly independent of life, death, nature, light, darkness, nothingness and the entire universe can be and is my God - the God that Muhammad, Jesus, Abraham and even Adam prayed to **^** - the God that I have come to refer to as Allah Subhaan Ta'la. 
+Only that which is truly independent of life, death, nature, light, darkness, nothingness and the entire universe can be and is my God - the God that **^** Muhammad, Jesus, Abraham and even Adam prayed to - the God that I have come to refer to as Allah Subhaan Ta'la. 
 
-**^** *(may peace be upon thme)*
+**^** *May peace be upon them*
 
 Indeed the challenge here is that if I speak of the name of Allah then I end up comparing Allah to that which can be named via similarity. I would end up comparing Allah to all that is tangible, namable and conceivable via contrast if I were to say that, "I do not know the name(s) of Allah. For me God is ineffible and cannot be named." Therefore, as much as possible, I maintain an open heart in silence. And may even my silence be a prayer. 
 
