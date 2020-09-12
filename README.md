@@ -18,7 +18,7 @@ Regarding the topics of soul, death and organized religions:
 
 > The nature of death is complex but I conceive of it as the "gateless gate." Upon passing through it I may not even come to realize the stage of death for death may be entirely empty! However, there certainly is indisputable evidence of "the wake of death" that very poignantly impacts the living. 
 
-> I feel that at this stage in human evolution almost every religious organization is embroiled in some form of bad-faith politics. For my personal life I have not needed a religious master or guide because I strongly feel that nature itself is the teacher of all teachers for every creature. And for me Islam is identical to the laws of nature - it is the very essence of cosmic nature embedded in each part of the universe. This is a perspective I have cultivated from my travels and research into the various scriptures and cultures I have had access to. 
+> I feel that at this stage in human evolution almost every religious organization is embroiled in some form of bad-faith politics. For my personal life I have not needed a religious master or guide because I strongly feel that nature itself is the teacher of all teachers for every creature. And for me Islam is identical to the laws of nature - it is the very essence of cosmic nature embedded in each part of the universe. This is a perspective I have cultivated from my research into various scriptures and cultures accessible to me and from my cosmopolitan travels. 
 
 I stick to the statement that, "it is potentially blasphemous to utter anything what-so-ever about what God is or isn't." To guard against such blasphemy I meditate on the topic of: 
 
@@ -56,7 +56,7 @@ As I quote myself in the above sentence, I attest that the phrase or wording of 
 
 I also believe that all beings have been given salvation by default because I believe that God couldn't possibly lose anything whatsoever by granting trasformative salvation and forgiveness to even the most wretched and heinous entity upon that entity's demise. This does not imply that we ought to give up on goodness and adopt the path of murderous fiends. Even in light of my view about salvation - the crooked, the insidious and the fiendish cannot be excused by members of a just society to rampantly cast lots, cast judgement and cast aspersions through their unethical schemes and scams! 
 
-More importantly, even though receiving salvation from God might be guaranteed there seems to be no guarantee for a person or a group of persons to receive emancipation from one-another. This is why causes like the Black Lives Matter movement are more important to me in a pragmatic sense than religious movements - they highlight the plight and struggle of all peoples in our attempt to achieve **emancipation!** Whether we are black persons or not, all of us need emancipation as an essential and foundational building block for a healthy and productive life. By denying each other emancipation and opportunities for an equitable life with dignified livelihood, we are constantly demeaning the beauty of nature (Rabb) and of every creature within nature's glory! 
+More importantly, even though receiving salvation from God might be guaranteed there seems to be no guarantee for a person or a group of persons to receive emancipation from one-another. This is why causes like the Black Lives Matter movement are more important to me in a pragmatic sense than religious movements as they highlight the plight and struggle of all peoples in our attempt to achieve **emancipation!** Whether we are black persons or not, all of us need emancipation as an essential and foundational building block for a healthy and productive life. By denying each other emancipation and opportunities for an equitable life with dignified livelihood, we are constantly demeaning the beauty of nature (Rabb) and of every creature within nature's glory! 
 
 ### Part V
 
@@ -65,16 +65,16 @@ As a practicing Muslim man, I suplicate in every moment and in every form of my 
 ```
 Allah The Almighty,
 The Everlasting,
-Most Generous and Most Compassionate Lord,
-Of all that is and isn't,
+Most Generous and Most Compassionate,
+Lord of all that is and isn't,
 As well as of all that can be and cannot be,
   Grant me and my kind:
-  Refuge within love and peace,
-  In every realm with,
-  The timely protection against,
-  The causes and conditions of,
-  Being forlorn, destitute, corrupted, entrapped or enraged,
-  Along with faculties of,
-  Courage, graciousness, good humour and honour,
-  Through the path of dignified correctness and rectitude.
+    Refuge within love and peace,
+    In every realm with,
+    The timely protection against,
+    The causes and conditions of,
+    Being forlorn, destitute, corrupted, entrapped or enraged,
+    Along with faculties of,
+    Courage, graciousness, good humour and honour,
+    Through the path of dignified correctness and rectitude.
 ```
